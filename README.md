@@ -10,7 +10,7 @@
   
  *Gmail:* **"amirhdolatshahi@gmail.com"**
 
- *Telegram:* **"@Amirh_dolatshahi"**
+ *Telegram:* **"@Amir_D_lt"**
 
  *Instagram:* **"amir_h.dlt"**
   
